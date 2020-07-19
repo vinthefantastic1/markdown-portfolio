@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+* Traveling
+* Music
+  * 80s
+  * old school rap
+  * old school r&B
+  
+  
